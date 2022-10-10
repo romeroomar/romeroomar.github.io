@@ -1,5 +1,5 @@
 # Kanye West
-![Ye](https://depositphotos.com/78976074/stock-photo-rapper-kanye-west.html)
+![Ye](https://media.vanityfair.com/photos/607d90ab783ff7d44fa8a447/master/w_2240,c_limit/1178693040)
 
 **Ye** formerly known as **Kanye West** was born on June 8, 1977. He is a singer/songwriter/rapper, fashion designer, and music producer. He is considered by many to be one of the **greatest** and most **influential** musicians of all time. Being one of the world's best selling music artists he is most known for his music. ![discography](https://routenote.com/blog/wp-content/uploads/2021/12/2560.jpg)
 
